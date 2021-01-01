@@ -30,5 +30,5 @@ So you know, if this happens, just DM me anytime, I'll update them.
 Thank you.
 #YashvirGaming
 
-P.s I'm not from India. Ok, Yes am a HINDU, but not from India.
-Stop asking me question.
+Donation via Bitcoin
+1A9fPuTezLt4L8MmCEjvE1GKP6Z59zPovg
